@@ -13,7 +13,7 @@ I'm a data analyst with 9+ years of experience in logistics operations. I'm curr
 
 ## 🔗 Connect with me
 
-- [LinkedIn]([https://www.linkedin.com/in/your-link/](https://www.linkedin.com/in/saif-ullah-634b7132b/))
+- [LinkedIn]([https://www.linkedin.com/in/your-link/](https://www.linkedin.com/in/saif-ullah-634b7132b/)
 - 📫 Email: xaify.2009@gmail.com
 - 
 
